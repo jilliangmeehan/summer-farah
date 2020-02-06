@@ -1,0 +1,38 @@
+html { -webkit-font-smoothing: antialiased; }
+
+body { font-family: "Open Sans"; }
+
+h1, nav { font-family: "Unna"; font-style: italic; font-weight: 400; }
+
+h2 { font-size: 1.2em; }
+
+p { font-size: 0.85rem; }
+
+a { text-decoration: none; color: gray; transition: 0.1s linear; }
+a:hover { color: #95D7B1; }
+
+.bio p { font-size: 1.2rem; }
+
+nav a { display: inline-block; position: relative; }
+nav a::after { content: ''; position: absolute; width: 100%; transform: scaleX(0); height: 2px; bottom: 0; left: 0; transform-origin: bottom right; transition: transform 0.4s cubic-bezier(0.86, 0, 0.07, 1); }
+nav a:hover::after { transform: scaleX(1); transform-origin: bottom left; }
+nav a.work { color: #95D7B1; }
+nav a.home { color: #95D7B1; }
+nav a.twitter { color: #91C6D7; }
+nav a.newsletter { color: #EED482; }
+nav a.instagram { color: #C99ADA; }
+nav a.work::after { background-color: #95D7B1; }
+nav a.home::after { background-color: #95D7B1; }
+nav a.twitter::after { background-color: #91C6D7; }
+nav a.newsletter::after { background-color: #EED482; }
+nav a.instagram::after { background-color: #C99ADA; }
+
+body { margin: 0 auto; padding: 3em 2.2em; }
+
+nav { margin: 2em auto; display: flex; flex-direction: row; }
+nav a { margin-right: 2em; }
+
+@media screen and (min-width: 700px) { body { margin: 5%; text-align: left; max-width: 700px; }
+  nav a { font-size: 1.2em; }
+  h1 { font-size: 2.6em; } }
+img { width: 100px; height: 100px; }

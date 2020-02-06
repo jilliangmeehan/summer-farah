@@ -1,0 +1,17 @@
+---
+title: Summer Farah
+layout: default
+permalink: /
+---
+
+{% capture bio %}
+{% include bio.md %}
+{% endcapture %}
+
+<!-- Content -->
+
+<div class="bio">
+  <p>{{ bio | markdownify }}</p>
+</div>
+
+{% include nav.html %}

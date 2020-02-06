@@ -1,0 +1,17 @@
+---
+title: Summer Farah
+layout: default
+permalink: /work
+---
+
+{% capture work %}
+{% include work.md %}
+{% endcapture %}
+
+<!-- Content -->
+
+<div class="container">
+  <p>{{ work | markdownify }}</p>
+</div>
+
+{% include nav.html %}

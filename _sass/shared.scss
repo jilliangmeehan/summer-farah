@@ -1,0 +1,98 @@
+// Typography
+
+html { -webkit-font-smoothing: antialiased; }
+body { font-family: $sans-serif; }
+
+h1, nav {
+  font-family: $serif;
+  font-style: italic;
+  font-weight: 400;
+}
+
+h2 { font-size: 1.2em; }
+
+p { font-size: 0.85rem; }
+
+a {
+  text-decoration: none;
+  color: gray;
+  transition: 0.1s linear;
+
+  &:hover { color: $green; }
+}
+
+.bio p { font-size: 1.2rem; }
+
+// Nav
+nav {
+  a {
+    display: inline-block;
+    position: relative;
+
+    &::after {
+      content: '';
+      position: absolute;
+      width: 100%;
+      transform: scaleX(0);
+      height: 2px;
+      bottom: 0;
+      left: 0;
+      transform-origin: bottom right;
+      transition: transform 0.4s cubic-bezier(0.86, 0, 0.07, 1);
+    }
+
+    &:hover::after {
+      transform: scaleX(1);
+      transform-origin: bottom left;
+    }
+
+    &.work { color: $green; }
+    &.home { color: $green; }
+    &.twitter { color: $blue; }
+    &.newsletter { color: $yellow; }
+    &.instagram { color: $purple; }
+
+    &.work::after { background-color: $green; }
+    &.home::after { background-color: $green; }
+    &.twitter::after { background-color: $blue; }
+    &.newsletter::after { background-color: $yellow; }
+    &.instagram::after { background-color: $purple; }
+  }
+}
+
+// Mobile
+body {
+  margin: 0 auto;
+  padding: 3em 2.2em;
+}
+
+nav {
+  margin: 2em auto;
+  display: flex;
+  flex-direction: row;
+  a { margin-right: 2em; }
+}
+
+// Desktop
+@media screen and (min-width: 700px) {
+  body {
+    margin: 5%;
+    text-align: left;
+    max-width: 700px;
+  }
+
+  nav {
+    a { font-size: 1.2em; }
+  }
+
+  h1 {
+    font-size: 2.6em;
+  }
+
+}
+
+// Everything else
+img {
+  width: 100px;
+  height: 100px;
+}

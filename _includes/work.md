@@ -8,6 +8,8 @@
 “baptism” – Ghassan Kanafani Youth Anthology 2017
 
 ## Online
+["No one is named. They are assigned: A Review of Jessica Abughattas’s Strip"](https://medium.com/anomalyblog/no-one-is-named-they-are-assigned-a-review-of-jessica-abughattas-strip-855a6016e12b) – ANOMALY
+
 ["ode to the hill where my ann arbor house sat" & "when food is love"](https://issuu.com/flypapermag/docs/poetry_issue_x) – FlyPaper Magazine
 
 ["it will be pink"](https://lithub.com/poets-respond-to-the-anniversary-of-nakba/) – LitHub, I FORGOT, LIKE YOU, TO DIE: 12 PALESTINIAN WRITERS RESPOND TO THE ONGOING NAKBA
@@ -18,7 +20,7 @@
 
 ## Forthcoming
 
-"“ , .”: Space and Justice in the Poetry of Solmaz Sharif", collected essays on Muslim Artists, Syracuse University Press
+"“ , .”: Space and Justice in the Poetry of Solmaz Sharif", collected essays on Muslim Artists, Lexington Books
 
 ## Podcasts & misc.
 ["we are summer farah"](https://www.ethnicallyambiguouspod.com/podcasts/we-are-summer-farah.html) – ethnically ambiguous

@@ -1,1 +1,1 @@
-Summer Farah is a poet and editor of Palestinian heritage. She co-writes the biweekly newsletter [Letters to Summer](https://letterstosummer.com). Contact her at [summerisfarah@gmail.com](mailto:summerisfarah@gmail.com).
+Summer Farah is a Palestinian American poet and editor. She co-writes the biweekly newsletter [Letters to Summer](https://letterstosummer.com) and is a 2019 RAWI WHAAS fellow. Her work has been published in Mizna, LitHub, hooligan mag, and other places. You can contact her at [summerisfarah@gmail.com](mailto:summerisfarah@gmail.com).

@@ -1,3 +1,22 @@
+## Reviews + Essays
+[Poetry Potluck: Layali Lubnan for Aracelis Girmay](https://poetry.arizona.edu/blog/poetry-potluck-9-layali-lubnan-aracelis-girmay) at University of Arizona Poetry Center
+
+[In Review: The Book of Disappearance by Ibtisam Azem](http://strangehorizons.com/non-fiction/reviews/the-book-of-disappearance-by-ibtisam-azem-translated-by-sinan-antoon/) at Strange Horizons
+
+[In Review: Alien Miss by Carlina Duan](https://vagabondcitylit.com/2021/03/15/in-review-alien-miss-by-carlina-duan/) at Vagabond City Lit
+
+[In Review: Cut Woman by Dena Igusti](https://vagabondcitylit.com/2020/12/14/in-review-cut-woman-by-dena-igusti/) at Vagabond City Lit 
+
+[In Review: Ghost Tracks by Sneha Subramanian Kanta](https://vagabondcitylit.com/2021/02/15/in-review-ghost-tracks-by-sneha-subramanian-kanta/) at Vagabond City Lit
+
+["No one is named. They are assigned: A Review of Jessica Abughattas’s Strip"](https://medium.com/anomalyblog/no-one-is-named-they-are-assigned-a-review-of-jessica-abughattas-strip-855a6016e12b) – ANOMALY
+
+"“ , .”: Space and Justice in the Poetry of Solmaz Sharif", [Muslim American Hyphenations: Cultural Production and Hybridity in the Twenty-First Century, Lexington Books](https://rowman.com/ISBN/9781793641298/Muslim-American-Hyphenations-Cultural-Production-and-Hybridity-in-the-Twenty-first-Century)* 
+
+"by words I mean food" – [SNAX](https://snaxreport.com/) Issue One
+
+*e-mail for PDF
+
 ## Poetry
 ["THE MOON IS PRO-PALESTINE"](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) voicemail poems winter 2021 issue
 
@@ -15,22 +34,6 @@
 
 ["dead sea"](https://issuu.com/hooliganmag/docs/issue_21) – hooligan 21
 
-## Reviews + Essays
-[Poetry Potluck: Layali Lubnan for Aracelis Girmay](https://poetry.arizona.edu/blog/poetry-potluck-9-layali-lubnan-aracelis-girmay) at University of Arizona Poetry Center
-
-[In Review: The Book of Disappearance by Ibtisam Azem](http://strangehorizons.com/non-fiction/reviews/the-book-of-disappearance-by-ibtisam-azem-translated-by-sinan-antoon/) at Strange Horizons
-
-[In Review: Alien Miss by Carlina Duan](https://vagabondcitylit.com/2021/03/15/in-review-alien-miss-by-carlina-duan/) at Vagabond City Lit
-
-[In Review: Cut Woman by Dena Igusti](https://vagabondcitylit.com/2020/12/14/in-review-cut-woman-by-dena-igusti/) at Vagabond City Lit 
-
-[In Review: Ghost Tracks by Sneha Subramanian Kanta](https://vagabondcitylit.com/2021/02/15/in-review-ghost-tracks-by-sneha-subramanian-kanta/) at Vagabond City Lit
-
-["No one is named. They are assigned: A Review of Jessica Abughattas’s Strip"](https://medium.com/anomalyblog/no-one-is-named-they-are-assigned-a-review-of-jessica-abughattas-strip-855a6016e12b) – ANOMALY
-
-"“ , .”: Space and Justice in the Poetry of Solmaz Sharif", [Muslim American Hyphenations: Cultural Production and Hybridity in the Twenty-First Century, Lexington Books](https://rowman.com/ISBN/9781793641298/Muslim-American-Hyphenations-Cultural-Production-and-Hybridity-in-the-Twenty-first-Century)
-
-"by words I mean food" – [SNAX](https://snaxreport.com/) Issue One
 
 ## Podcasts & misc.
 [Jonas Brothers: The 3D Concert Experience](https://open.spotify.com/episode/53Z3M8GrjTwkavYXsrFaZX?si=WN44R1cYQQirXtBw0a8JHQ) – disney+ podcast+

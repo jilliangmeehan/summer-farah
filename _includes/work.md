@@ -3,6 +3,7 @@
 
 [In Review: The Book of Disappearance by Ibtisam Azem](http://strangehorizons.com/non-fiction/reviews/the-book-of-disappearance-by-ibtisam-azem-translated-by-sinan-antoon/) at Strange Horizons
 
+[In Review: BINT by Ghwina Jawhari](https://vagabondcitylit.com/2021/04/19/in-review-bint-by-ghina-jawhari/) at Vagabond City Lit
 [In Review: Alien Miss by Carlina Duan](https://vagabondcitylit.com/2021/03/15/in-review-alien-miss-by-carlina-duan/) at Vagabond City Lit
 
 [In Review: Cut Woman by Dena Igusti](https://vagabondcitylit.com/2020/12/14/in-review-cut-woman-by-dena-igusti/) at Vagabond City Lit 

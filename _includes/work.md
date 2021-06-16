@@ -1,9 +1,12 @@
 ## Reviews + Essays
+[Constellations Series: The Camera Doesn't Love Anyone](https://mosaictheater.org/blog/constellations-series-camera) at Mosaic Theater blog 
+
 [Poetry Potluck: Layali Lubnan for Aracelis Girmay](https://poetry.arizona.edu/blog/poetry-potluck-9-layali-lubnan-aracelis-girmay) at University of Arizona Poetry Center
 
 [In Review: The Book of Disappearance by Ibtisam Azem](http://strangehorizons.com/non-fiction/reviews/the-book-of-disappearance-by-ibtisam-azem-translated-by-sinan-antoon/) at Strange Horizons
 
 [In Review: BINT by Ghwina Jawhari](https://vagabondcitylit.com/2021/04/19/in-review-bint-by-ghina-jawhari/) at Vagabond City Lit
+
 [In Review: Alien Miss by Carlina Duan](https://vagabondcitylit.com/2021/03/15/in-review-alien-miss-by-carlina-duan/) at Vagabond City Lit
 
 [In Review: Cut Woman by Dena Igusti](https://vagabondcitylit.com/2020/12/14/in-review-cut-woman-by-dena-igusti/) at Vagabond City Lit 
@@ -16,7 +19,7 @@
 
 "by words I mean food" – [SNAX](https://snaxreport.com/) Issue One
 
-*e-mail for PDF
+*contact for PDF
 
 ## Poetry
 ["THE MOON IS PRO-PALESTINE"](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) voicemail poems winter 2021 issue
@@ -37,6 +40,8 @@
 
 
 ## Podcasts & misc.
+[RAWIFest Interviews](https://soundcloud.com/radiusarabamericanwriters/sets/rawifest-2021) - with shereen & bes
+
 [Jonas Brothers: The 3D Concert Experience](https://open.spotify.com/episode/53Z3M8GrjTwkavYXsrFaZX?si=WN44R1cYQQirXtBw0a8JHQ) – disney+ podcast+
 
 ["we are summer farah"](https://www.ethnicallyambiguouspod.com/podcasts/we-are-summer-farah.html) – ethnically ambiguous

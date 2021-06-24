@@ -46,17 +46,15 @@ nav {
       transform-origin: bottom left;
     }
 
-    &.work { color: $green; }
-    &.home { color: $green; }
-    &.twitter { color: $blue; }
-    &.newsletter { color: $yellow; }
-    &.instagram { color: $purple; }
+    &.green { color: $green; }
+    &.blue { color: $blue; }
+    &.yellow { color: $yellow; }
+    &.purple { color: $purple; }
 
-    &.work::after { background-color: $green; }
-    &.home::after { background-color: $green; }
-    &.twitter::after { background-color: $blue; }
-    &.newsletter::after { background-color: $yellow; }
-    &.instagram::after { background-color: $purple; }
+    &.green::after { background-color: $green; }
+    &.blue::after { background-color: $blue; }
+    &.yellow::after { background-color: $yellow; }
+    &.purple::after { background-color: $purple; }
   }
 }
 

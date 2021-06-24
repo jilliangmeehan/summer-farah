@@ -1,0 +1,20 @@
+---
+title: Summer Farah
+permalink: "/contact"
+layout: default
+---
+
+<form id="fs-frm" name="simple-contact-form" accept-charset="utf-8" action="https://formspree.io/f/xlealerp" method="post">
+  <fieldset id="fs-frm-inputs">
+    <label for="email-address">Email Address</label>
+    <input type="email" name="_replyto" id="email-address" placeholder="email@domain.tld" required="">
+    <label for="_subject">Subject</label>
+    <input type="email" name="_subject" placeholder="Your email subject" required=""/>
+    <label for="message">Message</label>
+    <textarea rows="5" name="message" id="message" placeholder="Lorem ipsum dolor sit amet, consectetur adipiscing elit. Etiam condimentum vehicula ipsum ac commodo. Phasellus sed porttitor elit. Morbi id quam quis dui mollis dapibus. Fusce sed nibh quis neque posuere auctor non quis nisl. Vestibulum porta vel augue sed porta." required=""></textarea>
+    <input type="hidden" name="_subject" id="email-subject" value="Contact Form Submission">
+  </fieldset>
+  <input type="submit" value="Submit">
+</form>
+
+{% include nav.html %}

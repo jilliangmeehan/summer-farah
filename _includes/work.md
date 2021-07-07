@@ -24,7 +24,7 @@
 *contact for PDF
 
 ## Poetry
-["IF THE WORLD IS ENDING, I WANNA GO DOWN DANCING", "IN THE LITTLE MERMAID 2 MELODY UNDOES THE LITTLE MERMAID (1989)", "AT THE MET CLOISTERS"] - The Rumpus  
+["IF THE WORLD IS ENDING, I WANNA GO DOWN DANCING", "IN THE LITTLE MERMAID 2 MELODY UNDOES THE LITTLE MERMAID (1989)", "AT THE MET CLOISTERS"](https://therumpus.net/2021/07/we-are-more-three-poems-by-summer-farah/) - The Rumpus  
 
 
 ["THE MOON IS PRO-PALESTINE"](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) - voicemail poems winter 2021 issue

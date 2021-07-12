@@ -24,6 +24,8 @@
 *contact for PDF
 
 ## Poetry
+["blame it on the moon baby", "noooo don’t be a birthright apologist you’re so sexy ahha"](https://bahrmagazine.com/two-poems-summer-farah/) - bahr issue 1
+
 ["IF THE WORLD IS ENDING, I WANNA GO DOWN DANCING", "IN THE LITTLE MERMAID 2 MELODY UNDOES THE LITTLE MERMAID (1989)", "AT THE MET CLOISTERS"](https://therumpus.net/2021/07/we-are-more-three-poems-by-summer-farah/) - The Rumpus  
 
 

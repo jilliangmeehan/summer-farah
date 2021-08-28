@@ -1,28 +1,3 @@
-## Reviews + Essays
-[Constellations Series: The Camera Doesn't Love Anyone](https://mosaictheater.org/blog/constellations-series-camera) at Mosaic Theater blog 
-
-[Poetry Potluck: Layali Lubnan for Aracelis Girmay](https://poetry.arizona.edu/blog/poetry-potluck-9-layali-lubnan-aracelis-girmay) at University of Arizona Poetry Center
-
-[In Review: sad horse music by Samantha Fain](https://vagabondcitylit.com/2021/06/21/in-review-sad-horse-music-by-samantha-fain/) at Vagabond City Lit 
-
-[In Review: The Book of Disappearance by Ibtisam Azem](http://strangehorizons.com/non-fiction/reviews/the-book-of-disappearance-by-ibtisam-azem-translated-by-sinan-antoon/) at Strange Horizons
-
-[In Review: BINT by Ghwina Jawhari](https://vagabondcitylit.com/2021/04/19/in-review-bint-by-ghina-jawhari/) at Vagabond City Lit
-
-[In Review: Alien Miss by Carlina Duan](https://vagabondcitylit.com/2021/03/15/in-review-alien-miss-by-carlina-duan/) at Vagabond City Lit
-
-[In Review: Cut Woman by Dena Igusti](https://vagabondcitylit.com/2020/12/14/in-review-cut-woman-by-dena-igusti/) at Vagabond City Lit 
-
-[In Review: Ghost Tracks by Sneha Subramanian Kanta](https://vagabondcitylit.com/2021/02/15/in-review-ghost-tracks-by-sneha-subramanian-kanta/) at Vagabond City Lit
-
-["No one is named. They are assigned: A Review of Jessica Abughattas’s Strip"](https://medium.com/anomalyblog/no-one-is-named-they-are-assigned-a-review-of-jessica-abughattas-strip-855a6016e12b) at ANOMALY
-
-"“ , .”: Space and Justice in the Poetry of Solmaz Sharif", [Muslim American Hyphenations: Cultural Production and Hybridity in the Twenty-First Century, Lexington Books](https://rowman.com/ISBN/9781793641298/Muslim-American-Hyphenations-Cultural-Production-and-Hybridity-in-the-Twenty-first-Century)* 
-
-"by words I mean food" [SNAX](https://snaxreport.com/) Issue One
-
-*contact for PDF
-
 ## Poetry
 ["blame it on the moon baby", "noooo don’t be a birthright apologist you’re so sexy ahha"](https://bahrmagazine.com/two-poems-summer-farah/) - bahr issue 1
 
@@ -45,8 +20,38 @@
 
 ["dead sea"](https://issuu.com/hooliganmag/docs/issue_21) – hooligan 21
 
+## Reviews + Essays
+[The Baby Reimagined: Poets Edition](https://summabis.medium.com/the-baby-re-imagined-poets-edition-81760f544b7f) with Samia Saliba 
+
+[Constellations Series: The Camera Doesn't Love Anyone](https://mosaictheater.org/blog/constellations-series-camera) at Mosaic Theater blog 
+
+[Poetry Potluck: Layali Lubnan for Aracelis Girmay](https://poetry.arizona.edu/blog/poetry-potluck-9-layali-lubnan-aracelis-girmay) at University of Arizona Poetry Center
+
+[In Review: Born in a Second Language by Akosua Zimba Afiriyie-Hwedie](https://vagabondcitylit.com/2021/07/19/in-review-born-in-a-second-language-by-akosua-zimba-afiriyie-hwedie/) at Vagabond City Lit
+
+[In Review: sad horse music by Samantha Fain](https://vagabondcitylit.com/2021/06/21/in-review-sad-horse-music-by-samantha-fain/) at Vagabond City Lit 
+
+[In Review: The Book of Disappearance by Ibtisam Azem](http://strangehorizons.com/non-fiction/reviews/the-book-of-disappearance-by-ibtisam-azem-translated-by-sinan-antoon/) at Strange Horizons
+
+[In Review: BINT by Ghwina Jawhari](https://vagabondcitylit.com/2021/04/19/in-review-bint-by-ghina-jawhari/) at Vagabond City Lit
+
+[In Review: Alien Miss by Carlina Duan](https://vagabondcitylit.com/2021/03/15/in-review-alien-miss-by-carlina-duan/) at Vagabond City Lit
+
+[In Review: Cut Woman by Dena Igusti](https://vagabondcitylit.com/2020/12/14/in-review-cut-woman-by-dena-igusti/) at Vagabond City Lit 
+
+[In Review: Ghost Tracks by Sneha Subramanian Kanta](https://vagabondcitylit.com/2021/02/15/in-review-ghost-tracks-by-sneha-subramanian-kanta/) at Vagabond City Lit
+
+["No one is named. They are assigned: A Review of Jessica Abughattas’s Strip"](https://medium.com/anomalyblog/no-one-is-named-they-are-assigned-a-review-of-jessica-abughattas-strip-855a6016e12b) at ANOMALY
+
+"“ , .”: Space and Justice in the Poetry of Solmaz Sharif", [Muslim American Hyphenations: Cultural Production and Hybridity in the Twenty-First Century, Lexington Books](https://rowman.com/ISBN/9781793641298/Muslim-American-Hyphenations-Cultural-Production-and-Hybridity-in-the-Twenty-first-Century)* 
+
+"by words I mean food" [SNAX](https://snaxreport.com/) Issue One
+
+*contact for PDF
 
 ## Podcasts & misc.
+[What Does a Country Mean?: A Conversation with Zein Sa'dedin](https://www.sumoumag.com/read/what-does-a-country-mean-a-conversation-with-zein-sadedin) at Sumou Mag
+
 [RAWIFest Interviews](https://soundcloud.com/radiusarabamericanwriters/sets/rawifest-2021) - with shereen & bes
 
 [Jonas Brothers: The 3D Concert Experience](https://open.spotify.com/episode/53Z3M8GrjTwkavYXsrFaZX?si=WN44R1cYQQirXtBw0a8JHQ) – disney+ podcast+

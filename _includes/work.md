@@ -27,6 +27,8 @@
 
 [Poetry Potluck: Layali Lubnan for Aracelis Girmay](https://poetry.arizona.edu/blog/poetry-potluck-9-layali-lubnan-aracelis-girmay) at University of Arizona Poetry Center
 
+[In Review: VILLAINY by Andrea Abi-Karam](https://vagabondcitylit.com/2021/09/20/in-review-villainy-by-andrea-abi-karam/) at Vagabond City Lit
+
 [In Review: Born in a Second Language by Akosua Zimba Afiriyie-Hwedie](https://vagabondcitylit.com/2021/07/19/in-review-born-in-a-second-language-by-akosua-zimba-afiriyie-hwedie/) at Vagabond City Lit
 
 [In Review: sad horse music by Samantha Fain](https://vagabondcitylit.com/2021/06/21/in-review-sad-horse-music-by-samantha-fain/) at Vagabond City Lit 

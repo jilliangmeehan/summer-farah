@@ -21,6 +21,10 @@
 ["dead sea"](https://issuu.com/hooliganmag/docs/issue_21) – hooligan 21
 
 ## Reviews + Essays
+["I Write An Attempt: On Mohammed El-Kurd's _RIFQA](https://lareviewofbooks.org/article/i-write-an-attempt-on-mohammed-el-kurds-rifqa/) _at LA Review of Books__
+
+[Books We Read by Arabs in 2021](https://summabis.medium.com/books-we-read-by-arabs-in-2021-bc9db1dc837)with Samia Saliba
+
 [The Baby Reimagined: Poets Edition](https://summabis.medium.com/the-baby-re-imagined-poets-edition-81760f544b7f) with Samia Saliba 
 
 [Constellations Series: The Camera Doesn't Love Anyone](https://mosaictheater.org/blog/constellations-series-camera) at Mosaic Theater blog 

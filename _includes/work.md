@@ -56,6 +56,8 @@
 *contact for PDF
 
 ## Podcasts & misc.
+[FIYAH LIT Palestine Solidarity Issue](https://www.fiyahlitmag.com/the-palestine-solidarity-issue/) as Guest Poetry Editor 
+
 [What Does a Country Mean?: A Conversation with Zein Sa'dedin](https://www.sumoumag.com/read/what-does-a-country-mean-a-conversation-with-zein-sadedin) at Sumou Mag
 
 [RAWIFest Interviews](https://soundcloud.com/radiusarabamericanwriters/sets/rawifest-2021) - with shereen & bes

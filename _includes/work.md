@@ -1,4 +1,9 @@
 ## Poetry
+[portrait of each moon that has seen link live](https://www.poetry.onl/read/sum-fa) - Poetry Online 
+
+["WHAT'S IT CALLED WHEN ISRAEL DESTROYS A PALESTINIAN VILLAGE BECAUSE THERE'S ALLEGEDLY AN ANCIENT JEWISH CIVILIZATION UNDER IT, and POEM FOR AKKA IN 2 PARTS
+](https://www.sumoumag.com/read/two-poems) - Sumou Issue 5 
+
 ["blame it on the moon baby", "noooo don’t be a birthright apologist you’re so sexy ahha"](https://bahrmagazine.com/two-poems-summer-farah/) - bahr issue 1
 
 ["IF THE WORLD IS ENDING, I WANNA GO DOWN DANCING", "IN THE LITTLE MERMAID 2 MELODY UNDOES THE LITTLE MERMAID (1989)", "AT THE MET CLOISTERS"](https://therumpus.net/2021/07/we-are-more-three-poems-by-summer-farah/) - The Rumpus  
@@ -21,7 +26,9 @@
 ["dead sea"](https://issuu.com/hooliganmag/docs/issue_21) – hooligan 21
 
 ## Reviews + Essays
-["I Write An Attempt: On Mohammed El-Kurd's _RIFQA](https://lareviewofbooks.org/article/i-write-an-attempt-on-mohammed-el-kurds-rifqa/) _at LA Review of Books__
+["A New Silent Grammar": On Customs by Solmaz Sharif"](https://www.clereviewofbooks.com/home/solmaz-sharif-customs-review) at Cleveland Review of Books
+
+["I Write An Attempt: On Mohammed El-Kurd's _RIFQA](https://lareviewofbooks.org/article/i-write-an-attempt-on-mohammed-el-kurds-rifqa/)at LA Review of Books
 
 [Books We Read by Arabs in 2021](https://summabis.medium.com/books-we-read-by-arabs-in-2021-bc9db1dc837)with Samia Saliba
 

@@ -1,30 +1,3 @@
-## Poetry
-[portrait of each moon that has seen link live](https://www.poetry.onl/read/sum-fa) - Poetry Online 
-
-["WHAT'S IT CALLED WHEN ISRAEL DESTROYS A PALESTINIAN VILLAGE BECAUSE THERE'S ALLEGEDLY AN ANCIENT JEWISH CIVILIZATION UNDER IT, and POEM FOR AKKA IN 2 PARTS
-](https://www.sumoumag.com/read/two-poems) - Sumou Issue 5 
-
-["blame it on the moon baby", "noooo don’t be a birthright apologist you’re so sexy ahha"](https://bahrmagazine.com/two-poems-summer-farah/) - bahr issue 1
-
-["IF THE WORLD IS ENDING, I WANNA GO DOWN DANCING", "IN THE LITTLE MERMAID 2 MELODY UNDOES THE LITTLE MERMAID (1989)", "AT THE MET CLOISTERS"](https://therumpus.net/2021/07/we-are-more-three-poems-by-summer-farah/) - The Rumpus  
-
-
-["THE MOON IS PRO-PALESTINE"](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) - voicemail poems winter 2021 issue
-
-"poem to be read without the nostalgia of harry potter clouding my associations" – FOGLIFTER
-
-“origin story” – Mizna 19.1, The Palestine Issue
-
-["ode to the hill where my ann arbor house sat" & "when food is love"](https://issuu.com/flypapermag/docs/poetry_issue_x) – FlyPaper Magazine
-
-["it will be pink"](https://lithub.com/poets-respond-to-the-anniversary-of-nakba/) – LitHub, I FORGOT, LIKE YOU, TO DIE: 12 PALESTINIAN WRITERS RESPOND TO THE ONGOING NAKBA
-
-["mulberry stains on sundays"](https://issuu.com/hooliganmag/docs/issue_22) –hooligan 22
-
-“baptism” – Ghassan Kanafani Youth Anthology 2017
-
-["dead sea"](https://issuu.com/hooliganmag/docs/issue_21) – hooligan 21
-
 ## Reviews + Essays
 ["A New Silent Grammar": On Customs by Solmaz Sharif"](https://www.clereviewofbooks.com/home/solmaz-sharif-customs-review) at Cleveland Review of Books
 
@@ -61,6 +34,34 @@
 "by words I mean food" [SNAX](https://snaxreport.com/) Issue One
 
 *contact for PDF
+
+## Poetry
+[I WANT TO BE ALIVE FOR A REASON](https://www.palettepoetry.com/2022/03/28/i-want-to-be-alive-for-a-reason/) - Palette Poetry 
+[portrait of each moon that has seen link live](https://www.poetry.onl/read/sum-fa) - Poetry Online 
+
+[two poems](https://www.sumoumag.com/read/two-poems) - Sumou Issue 5 
+
+[two poems]https://bahrmagazine.com/two-poems-summer-farah/) - bahr issue 1
+
+[three poems](https://therumpus.net/2021/07/we-are-more-three-poems-by-summer-farah/) - The Rumpus  
+
+["THE MOON IS PRO-PALESTINE"](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) - voicemail poems winter 2021 issue
+
+"poem to be read without the nostalgia of harry potter clouding my associations" – FOGLIFTER
+
+“origin story” – Mizna 19.1, The Palestine Issue
+
+["ode to the hill where my ann arbor house sat" & "when food is love"](https://issuu.com/flypapermag/docs/poetry_issue_x) – FlyPaper Magazine
+
+["it will be pink"](https://lithub.com/poets-respond-to-the-anniversary-of-nakba/) – LitHub, I FORGOT, LIKE YOU, TO DIE: 12 PALESTINIAN WRITERS RESPOND TO THE ONGOING NAKBA
+
+["mulberry stains on sundays"](https://issuu.com/hooliganmag/docs/issue_22) –hooligan 22
+
+“baptism” – Ghassan Kanafani Youth Anthology 2017
+
+["dead sea"](https://issuu.com/hooliganmag/docs/issue_21) – hooligan 21
+
+
 
 ## Podcasts & misc.
 [FIYAH LIT Palestine Solidarity Issue](https://www.fiyahlitmag.com/the-palestine-solidarity-issue/) as Guest Poetry Editor 

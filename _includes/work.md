@@ -41,7 +41,7 @@
 
 [two poems](https://www.sumoumag.com/read/two-poems) - Sumou Issue 5 
 
-[two poems]https://bahrmagazine.com/two-poems-summer-farah/) - bahr issue 1
+[two poems](https://bahrmagazine.com/two-poems-summer-farah/) - bahr issue 1
 
 [three poems](https://therumpus.net/2021/07/we-are-more-three-poems-by-summer-farah/) - The Rumpus  
 

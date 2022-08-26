@@ -36,7 +36,10 @@
 *contact for PDF
 
 ## Poetry
+[two poems](https://violetindigoblueetc.com/two-poems-summer-farah/) - Summer 2022, Violet Indigo Blue Etc
+
 [I WANT TO BE ALIVE FOR A REASON](https://www.palettepoetry.com/2022/03/28/i-want-to-be-alive-for-a-reason/) - Palette Poetry 
+
 [portrait of each moon that has seen link live](https://www.poetry.onl/read/sum-fa) - Poetry Online 
 
 [two poems](https://www.sumoumag.com/read/two-poems) - Sumou Issue 5 

@@ -1,4 +1,6 @@
 ## Reviews + Essays
+[A Year in Reading](https://themillions.com/2022/12/a-year-in-reading-summer-farah.html) at The Millions 
+
 ["A New Silent Grammar": On Customs by Solmaz Sharif"](https://www.clereviewofbooks.com/home/solmaz-sharif-customs-review) at Cleveland Review of Books
 
 ["I Write An Attempt: On Mohammed El-Kurd's _RIFQA](https://lareviewofbooks.org/article/i-write-an-attempt-on-mohammed-el-kurds-rifqa/)at LA Review of Books

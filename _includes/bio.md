@@ -1,4 +1,4 @@
-Summer Farah is a Palestinian American poet, editor, and critic. She is currently the outreach coordinator for the [Radius of Arab American Writers](https://arabamericanwriters.org/) and sends out the occasional essay at [evening conversations](https://eveningconversations.substack.com/)
+Summer Farah is a Palestinian American poet, editor, and critic. She is currently the outreach coordinator for the [Radius of Arab American Writers](https://arabamericanwriters.org/) and sends out the occasional essay at [evening conversations](https://eveningconversations.substack.com/).
 
 With Jillian Meehan, she co-writes the biweekly newsletter currently on hiatus, [Letters to Summer](https://letterstosummer.com).  
 

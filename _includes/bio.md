@@ -1,3 +1,5 @@
-Summer Farah is a Palestinian American poet, editor, and critic. She is currently the outreach coordinator for the [Radius of Arab American Writers](https://arabamericanwriters.org/) and co-writes the biweekly newsletter [Letters to Summer](https://letterstosummer.com). 
+Summer Farah is a Palestinian American poet, editor, and critic. She is currently the outreach coordinator for the [Radius of Arab American Writers](https://arabamericanwriters.org/) and sends out the occasional essay at [evening conversations](https://eveningconversations.substack.com/)
+
+With Jillian Meehan, she co-writes the biweekly newsletter currently on hiatus, [Letters to Summer](https://letterstosummer.com).  
 
 Summer is an associate editor at Catapult Books, acquiring in nonfiction. In 2021, she served as the poetry editor for the [FIYAH Lit Palestine Solidarity issue](https://www.fiyahlitmag.com/the-palestine-solidarity-issue/). She also edited the folio [ORIGINALITYISDEAD for Violet, Indigo, Blue, Etc.](https://violetindigoblueetc.com/originalityisdead/). She is a Winter 2022 Tin House Fellow and a 22-23 NBCC Emerging Critic Fellow. Her work has been published in or is forthcoming from Mizna, LitHub, The Rumpus, and other places. Check out her zine, "& I was so young when I behaved 25," poems inspired by Mitski, [here](https://ko-fi.com/summabis/shop). 

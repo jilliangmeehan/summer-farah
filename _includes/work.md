@@ -1,9 +1,11 @@
 ## Reviews + Essays
+[Mouth to Mouth v. The Book of Goose](https://www.tournamentofbooks.com/2023/mouth-to-mouth-v-the-book-of-goose)at Tournament of Books
+
 [A Year in Reading](https://themillions.com/2022/12/a-year-in-reading-summer-farah.html) at The Millions 
 
 ["A New Silent Grammar": On Customs by Solmaz Sharif"](https://www.clereviewofbooks.com/home/solmaz-sharif-customs-review) at Cleveland Review of Books
 
-["I Write An Attempt: On Mohammed El-Kurd's _RIFQA](https://lareviewofbooks.org/article/i-write-an-attempt-on-mohammed-el-kurds-rifqa/)at LA Review of Books
+["I Write An Attempt: On Mohammed El-Kurd's RIFQA](https://lareviewofbooks.org/article/i-write-an-attempt-on-mohammed-el-kurds-rifqa/)at LA Review of Books
 
 [Books We Read by Arabs in 2021](https://summabis.medium.com/books-we-read-by-arabs-in-2021-bc9db1dc837)with Samia Saliba
 

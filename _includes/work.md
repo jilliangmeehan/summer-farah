@@ -43,12 +43,10 @@
 
 *contact for PDF
 
-## Poetry
+## Selected Poetry
 [two poems](https://violetindigoblueetc.com/summerf/) - GARDEN PARTY, Violet Inhdigo Blue Etc
 
 [two poems](https://violetindigoblueetc.com/two-poems-summer-farah/) - Summer 2022, Violet Indigo Blue Etc
-
-[I WANT TO BE ALIVE FOR A REASON](https://www.palettepoetry.com/2022/03/28/i-want-to-be-alive-for-a-reason/) - Palette Poetry 
 
 [portrait of each moon that has seen link live](https://www.poetry.onl/read/sum-fa) - Poetry Online 
 
@@ -60,19 +58,9 @@
 
 ["THE MOON IS PRO-PALESTINE"](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) - voicemail poems winter 2021 issue
 
-"poem to be read without the nostalgia of harry potter clouding my associations" – FOGLIFTER
-
 “origin story” – Mizna 19.1, The Palestine Issue
 
-["ode to the hill where my ann arbor house sat" & "when food is love"](https://issuu.com/flypapermag/docs/poetry_issue_x) – FlyPaper Magazine
-
 ["it will be pink"](https://lithub.com/poets-respond-to-the-anniversary-of-nakba/) – LitHub, I FORGOT, LIKE YOU, TO DIE: 12 PALESTINIAN WRITERS RESPOND TO THE ONGOING NAKBA
-
-["mulberry stains on sundays"](https://issuu.com/hooliganmag/docs/issue_22) –hooligan 22
-
-“baptism” – Ghassan Kanafani Youth Anthology 2017
-
-["dead sea"](https://issuu.com/hooliganmag/docs/issue_21) – hooligan 21
 
 ## Selected editorial Work
 [FIYAH LIT Palestine Solidarity Issue](https://www.fiyahlitmag.com/the-palestine-solidarity-issue/) as Guest Poetry Editor 

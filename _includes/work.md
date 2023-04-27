@@ -1,4 +1,8 @@
 ## Reviews + Essays
+[POETRY DOUBLE FEATURES: SOME ARE ALWAYS HUNGRY x HIJRA](https://www.palettepoetry.com/2023/04/25/poetry-double-features-2/) at Palette Poetry 
+
+[POETRY DOUBLE FEATURES: R E D x WE'VE ALL SEEN HELENA](https://www.palettepoetry.com/2023/03/23/poetry-double-features-1/) at Palette Poetry 
+
 [Mouth to Mouth v. The Book of Goose](https://www.tournamentofbooks.com/2023/mouth-to-mouth-v-the-book-of-goose)at Tournament of Books
 
 [A Year in Reading](https://themillions.com/2022/12/a-year-in-reading-summer-farah.html) at The Millions 

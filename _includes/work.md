@@ -44,6 +44,8 @@
 *contact for PDF
 
 ## Poetry
+[two poems](https://violetindigoblueetc.com/summerf/) - GARDEN PARTY, Violet Inhdigo Blue Etc
+
 [two poems](https://violetindigoblueetc.com/two-poems-summer-farah/) - Summer 2022, Violet Indigo Blue Etc
 
 [I WANT TO BE ALIVE FOR A REASON](https://www.palettepoetry.com/2022/03/28/i-want-to-be-alive-for-a-reason/) - Palette Poetry 
@@ -72,15 +74,21 @@
 
 ["dead sea"](https://issuu.com/hooliganmag/docs/issue_21) – hooligan 21
 
-
-
-## Podcasts & misc.
+## Selected editorial Work
 [FIYAH LIT Palestine Solidarity Issue](https://www.fiyahlitmag.com/the-palestine-solidarity-issue/) as Guest Poetry Editor 
 
-[What Does a Country Mean?: A Conversation with Zein Sa'dedin](https://www.sumoumag.com/read/what-does-a-country-mean-a-conversation-with-zein-sadedin) at Sumou Mag
+[ORIGINALITYISDEAD](https://violetindigoblueetc.com/originalityisdead/) as Editor
+
+
+## Interviews
+[A Conversation with Zein Sa'dedin](https://www.sumoumag.com/read/what-does-a-country-mean-a-conversation-with-zein-sadedin) at Sumou Mag
+
+[A Conversation with Maya Salameh](https://www.sumoumag.com/read/i-really-enjoy-writing-as-testaments-to-places-a-conversation-with-maya-salameh) at Sumou Mag
 
 [RAWIFest Interviews](https://soundcloud.com/radiusarabamericanwriters/sets/rawifest-2021) - with shereen & bes
 
+
+## Podcasts & misc.
 [Jonas Brothers: The 3D Concert Experience](https://open.spotify.com/episode/53Z3M8GrjTwkavYXsrFaZX?si=WN44R1cYQQirXtBw0a8JHQ) – disney+ podcast+
 
 ["we are summer farah"](https://www.ethnicallyambiguouspod.com/podcasts/we-are-summer-farah.html) – ethnically ambiguous

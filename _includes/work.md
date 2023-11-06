@@ -1,7 +1,11 @@
 ## Reviews + Essays
+[Review of "I Will Not Fold These Maps" by Mona Kareem trans. Sara Elkamel](https://www.thecommononline.org/review-of-i-will-not-fold-these-maps/) at The Common
+
 [POETRY DOUBLE FEATURES: SOME ARE ALWAYS HUNGRY x HIJRA](https://www.palettepoetry.com/2023/04/25/poetry-double-features-2/) at Palette Poetry 
 
 [POETRY DOUBLE FEATURES: R E D x WE'VE ALL SEEN HELENA](https://www.palettepoetry.com/2023/03/23/poetry-double-features-1/) at Palette Poetry 
+
+[See the rest of Poetry Double Features Here](https://www.palettepoetry.com/columns/poetry-double-features/#:~:text=In%20Poetry%20Double%20Features%2C%20poet,collections%20that%20complement%20each%20other.)
 
 [Mouth to Mouth v. The Book of Goose](https://www.tournamentofbooks.com/2023/mouth-to-mouth-v-the-book-of-goose)at Tournament of Books
 
@@ -69,6 +73,10 @@
 
 
 ## Interviews
+[The Same Water at Different Points: A Conversation with Hala Alyan and Zeina Hashem Beck](https://lareviewofbooks.org/article/the-same-water-at-different-points-a-conversation-with-hala-alyan-and-zeina-hashem-beck/) at Los Angeles Review of Books 
+
+[SUMMER FARAH SPEAKS WITH LEENA ABOUTALEB ABOUT HER DEBUT CHAPBOOK](https://www.poetry.onl/read/summer-leena) at Poetry Online
+
 [A Conversation with Zein Sa'dedin](https://www.sumoumag.com/read/what-does-a-country-mean-a-conversation-with-zein-sadedin) at Sumou Mag
 
 [A Conversation with Maya Salameh](https://www.sumoumag.com/read/i-really-enjoy-writing-as-testaments-to-places-a-conversation-with-maya-salameh) at Sumou Mag

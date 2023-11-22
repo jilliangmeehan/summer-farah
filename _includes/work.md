@@ -79,6 +79,8 @@
 
 
 ## Interviews
+[The Craft of Turning Video Games into Literary Essays](https://electricliterature.com/critical-hits-writers-playing-video-games-book-anthology-interview-j-robert-lennon-and-carmen-maria-machado/) at Electric Lit 
+
 [The Same Water at Different Points: A Conversation with Hala Alyan and Zeina Hashem Beck](https://lareviewofbooks.org/article/the-same-water-at-different-points-a-conversation-with-hala-alyan-and-zeina-hashem-beck/) at Los Angeles Review of Books 
 
 [SUMMER FARAH SPEAKS WITH LEENA ABOUTALEB ABOUT HER DEBUT CHAPBOOK](https://www.poetry.onl/read/summer-leena) at Poetry Online

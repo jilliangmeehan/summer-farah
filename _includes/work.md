@@ -48,7 +48,13 @@
 *contact for PDF
 
 ## Selected Poetry
+[two poems](https://foglifterjournal.com/product/foglifter-journal-volume-8-issue-1/) - Foglifter, Volume 8 Issue 1 
+
+[two pooems](https://longconmag.com/issue-14/summer-farah/) - Long Con Magazine, Issue 14 
+
 [two poems](https://violetindigoblueetc.com/summerf/) - GARDEN PARTY, Violet Inhdigo Blue Etc
+
+[I WANT TO BE ALIVE FOR A REASON](https://www.palettepoetry.com/2022/03/28/i-want-to-be-alive-for-a-reason/) - Palette Poetry 
 
 [two poems](https://violetindigoblueetc.com/two-poems-summer-farah/) - Summer 2022, Violet Indigo Blue Etc
 

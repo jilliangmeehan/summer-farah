@@ -48,11 +48,15 @@
 *contact for PDF
 
 ## Selected Poetry
+[AFTER WE WATCH ROAD FOOD I CONSIDER PLACE](https://apogeejournal.org/2024/03/22/summerfarah/) - Apogee Journal 
+
+[I TELL ETEL ADNAN ABOUT JULIE & JULIA](https://ko-fi.com/s/7a7103cf06) - SPRING CLEAN, Violet Indigo Blue Etc
+
 [two poems](https://foglifterjournal.com/product/foglifter-journal-volume-8-issue-1/) - Foglifter, Volume 8 Issue 1 
 
 [two pooems](https://longconmag.com/issue-14/summer-farah/) - Long Con Magazine, Issue 14 
 
-[two poems](https://violetindigoblueetc.com/summerf/) - GARDEN PARTY, Violet Inhdigo Blue Etc
+[two poems](https://violetindigoblueetc.com/summerf/) - GARDEN PARTY, Violet Indigo Blue Etc
 
 [I WANT TO BE ALIVE FOR A REASON](https://www.palettepoetry.com/2022/03/28/i-want-to-be-alive-for-a-reason/) - Palette Poetry 
 

@@ -95,6 +95,8 @@
 
 
 ## Interviews
+[Leena Aboutaleb Speaks with Summer Farah about her Debut Chapbook](https://poetry.onl/read/summer-leena-2) at Poetry Online
+
 [The Craft of Turning Video Games into Literary Essays](https://electricliterature.com/critical-hits-writers-playing-video-games-book-anthology-interview-j-robert-lennon-and-carmen-maria-machado/) at Electric Lit 
 
 [The Same Water at Different Points: A Conversation with Hala Alyan and Zeina Hashem Beck](https://lareviewofbooks.org/article/the-same-water-at-different-points-a-conversation-with-hala-alyan-and-zeina-hashem-beck/) at Los Angeles Review of Books 
@@ -109,6 +111,10 @@
 
 
 ## Podcasts & misc.
+[About the Parasocial with Summer Farah](https://podcasts.apple.com/us/podcast/2-poet-talk-about-the-parasocial-featuring-summer-farah/id1749089614?i=1000660248583) - Poet Talk
+
+[Julie & Julia with Summer Farah](https://www.iheart.com/podcast/105-the-bechdel-cast-30089535/episode/julie-julia-with-summer-farah-158868453/) - The Bechdel Cast 
+
 [Jonas Brothers: The 3D Concert Experience](https://open.spotify.com/episode/53Z3M8GrjTwkavYXsrFaZX?si=WN44R1cYQQirXtBw0a8JHQ) – disney+ podcast+
 
 ["we are summer farah"](https://www.ethnicallyambiguouspod.com/podcasts/we-are-summer-farah.html) – ethnically ambiguous

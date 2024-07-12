@@ -1,3 +1,42 @@
+## Selected Poetry
+[AFTER MOUNT TAMALPAIS, I TELL ETEL ADNAN ABOUT SUPERNATURAL](https://poets.org/poem/after-mount-tamalpais-i-tell-etel-adnan-about-supernatural) - Poem-A-Day
+
+[IN ANOTHER LIFE LINK IS A POET](https://www.splitthisrock.org/poetry-database/poem/in-another-life-link-is-a-poet) - Split This Rock
+
+[A YEAR AFTER I LOVED HAIKYUU,](https://kenyonreview.org/piece/a-year-after-i-first-loved-haikyuu/) - Kenyon Review
+
+[I TELL ETEL ADNAN ABOUT MITSKI](https://kenyonreview.org/piece/i-tell-etel-adnan-about-mitski/) - Kenyon Review
+
+[I TELL ETEL ADNAN ABOUT THE LEGEND OF ZELDA](https://kenyonreview.org/piece/i-tell-etel-adnan-about-the-legend-of-zelda/) - Kenyon Review
+
+[AFTER WE WATCH ROAD FOOD I CONSIDER PLACE](https://apogeejournal.org/2024/03/22/summerfarah/) - Apogee Journal 
+
+[I TELL ETEL ADNAN ABOUT JULIE & JULIA](https://ko-fi.com/s/7a7103cf06) - SPRING CLEAN, Violet Indigo Blue Etc
+
+[two poems](https://foglifterjournal.com/product/foglifter-journal-volume-8-issue-1/) - Foglifter, Volume 8 Issue 1 
+
+[two pooems](https://longconmag.com/issue-14/summer-farah/) - Long Con Magazine, Issue 14 
+
+[two poems](https://violetindigoblueetc.com/summerf/) - GARDEN PARTY, Violet Indigo Blue Etc
+
+[I WANT TO BE ALIVE FOR A REASON](https://www.palettepoetry.com/2022/03/28/i-want-to-be-alive-for-a-reason/) - Palette Poetry 
+
+[two poems](https://violetindigoblueetc.com/two-poems-summer-farah/) - Summer 2022, Violet Indigo Blue Etc
+
+[portrait of each moon that has seen link live](https://www.poetry.onl/read/sum-fa) - Poetry Online 
+
+[two poems](https://www.sumoumag.com/read/two-poems) - Sumou Issue 5 
+
+[two poems](https://bahrmagazine.com/two-poems-summer-farah/) - bahr issue 1
+
+[three poems](https://therumpus.net/2021/07/we-are-more-three-poems-by-summer-farah/) - The Rumpus  
+
+["THE MOON IS PRO-PALESTINE"](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) - voicemail poems winter 2021 issue
+
+“origin story” – Mizna 19.1, The Palestine Issue
+
+["it will be pink"](https://lithub.com/poets-respond-to-the-anniversary-of-nakba/) – LitHub, I FORGOT, LIKE YOU, TO DIE: 12 PALESTINIAN WRITERS RESPOND TO THE ONGOING NAKBA
+
 ## Reviews + Essays
 [From Witness From Speech From Image: On Etel Adnan’s The Arab Apocalypse and Theresa Hak Kyung Cha’s Dictee](https://www.poetrynw.org/from-witness-from-speech-from-image/) at Poetry Northwest. Buy it in zine form, with all proceeds going to the [Gaza Poets Society](https://givebutter.com/NCBSOF), [here](https://open-books-a-poem-emporium.myshopify.com/products/farah-summer-from-witness-from-speech-from-image-the-ara-apocalypse-dictee-zine?_pos=4&_sid=fa08d7aad&_ss=r).
 
@@ -49,44 +88,7 @@
 
 *contact for PDF
 
-## Selected Poetry
-[AFTER MOUNT TAMALPAIS, I TELL ETEL ADNAN ABOUT SUPERNATURAL](https://poets.org/poem/after-mount-tamalpais-i-tell-etel-adnan-about-supernatural) - Poem-A-Day
 
-[IN ANOTHER LIFE LINK IS A POET](https://www.splitthisrock.org/poetry-database/poem/in-another-life-link-is-a-poet) - Split This Rock
-
-[A YEAR AFTER I LOVED HAIKYUU,](https://kenyonreview.org/piece/a-year-after-i-first-loved-haikyuu/) - Kenyon Review
-
-[I TELL ETEL ADNAN ABOUT MITSKI](https://kenyonreview.org/piece/i-tell-etel-adnan-about-mitski/) - Kenyon Review
-
-[I TELL ETEL ADNAN ABOUT THE LEGEND OF ZELDA](https://kenyonreview.org/piece/i-tell-etel-adnan-about-the-legend-of-zelda/) - Kenyon Review
-
-[AFTER WE WATCH ROAD FOOD I CONSIDER PLACE](https://apogeejournal.org/2024/03/22/summerfarah/) - Apogee Journal 
-
-[I TELL ETEL ADNAN ABOUT JULIE & JULIA](https://ko-fi.com/s/7a7103cf06) - SPRING CLEAN, Violet Indigo Blue Etc
-
-[two poems](https://foglifterjournal.com/product/foglifter-journal-volume-8-issue-1/) - Foglifter, Volume 8 Issue 1 
-
-[two pooems](https://longconmag.com/issue-14/summer-farah/) - Long Con Magazine, Issue 14 
-
-[two poems](https://violetindigoblueetc.com/summerf/) - GARDEN PARTY, Violet Indigo Blue Etc
-
-[I WANT TO BE ALIVE FOR A REASON](https://www.palettepoetry.com/2022/03/28/i-want-to-be-alive-for-a-reason/) - Palette Poetry 
-
-[two poems](https://violetindigoblueetc.com/two-poems-summer-farah/) - Summer 2022, Violet Indigo Blue Etc
-
-[portrait of each moon that has seen link live](https://www.poetry.onl/read/sum-fa) - Poetry Online 
-
-[two poems](https://www.sumoumag.com/read/two-poems) - Sumou Issue 5 
-
-[two poems](https://bahrmagazine.com/two-poems-summer-farah/) - bahr issue 1
-
-[three poems](https://therumpus.net/2021/07/we-are-more-three-poems-by-summer-farah/) - The Rumpus  
-
-["THE MOON IS PRO-PALESTINE"](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) - voicemail poems winter 2021 issue
-
-“origin story” – Mizna 19.1, The Palestine Issue
-
-["it will be pink"](https://lithub.com/poets-respond-to-the-anniversary-of-nakba/) – LitHub, I FORGOT, LIKE YOU, TO DIE: 12 PALESTINIAN WRITERS RESPOND TO THE ONGOING NAKBA
 
 ## Selected editorial Work
 [FIYAH LIT Palestine Solidarity Issue](https://www.fiyahlitmag.com/the-palestine-solidarity-issue/) as Guest Poetry Editor 

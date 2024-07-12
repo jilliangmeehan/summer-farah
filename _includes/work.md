@@ -1,4 +1,6 @@
 ## Reviews + Essays
+[From Witness From Speech From Image: On Etel Adnan’s The Arab Apocalypse and Theresa Hak Kyung Cha’s Dictee](https://www.poetrynw.org/from-witness-from-speech-from-image/) at Poetry Northwest. Buy it in zine form, with all proceeds going to the [Gaza Poets Society](https://givebutter.com/NCBSOF), [here](https://open-books-a-poem-emporium.myshopify.com/products/farah-summer-from-witness-from-speech-from-image-the-ara-apocalypse-dictee-zine?_pos=4&_sid=fa08d7aad&_ss=r).
+
 [Review of "I Will Not Fold These Maps" by Mona Kareem trans. Sara Elkamel](https://www.thecommononline.org/review-of-i-will-not-fold-these-maps/) at The Common
 
 [POETRY DOUBLE FEATURES: SOME ARE ALWAYS HUNGRY x HIJRA](https://www.palettepoetry.com/2023/04/25/poetry-double-features-2/) at Palette Poetry 
@@ -48,6 +50,16 @@
 *contact for PDF
 
 ## Selected Poetry
+[AFTER MOUNT TAMALPAIS, I TELL ETEL ADNAN ABOUT SUPERNATURAL](https://poets.org/poem/after-mount-tamalpais-i-tell-etel-adnan-about-supernatural) - Poem-A-Day
+
+[IN ANOTHER LIFE LINK IS A POET](https://www.splitthisrock.org/poetry-database/poem/in-another-life-link-is-a-poet) - Split This Rock
+
+[A YEAR AFTER I LOVED HAIKYUU,](https://kenyonreview.org/piece/a-year-after-i-first-loved-haikyuu/) - Kenyon Review
+
+[I TELL ETEL ADNAN ABOUT MITSKI](https://kenyonreview.org/piece/i-tell-etel-adnan-about-mitski/) - Kenyon Review
+
+[I TELL ETEL ADNAN ABOUT THE LEGEND OF ZELDA](https://kenyonreview.org/piece/i-tell-etel-adnan-about-the-legend-of-zelda/) - Kenyon Review
+
 [AFTER WE WATCH ROAD FOOD I CONSIDER PLACE](https://apogeejournal.org/2024/03/22/summerfarah/) - Apogee Journal 
 
 [I TELL ETEL ADNAN ABOUT JULIE & JULIA](https://ko-fi.com/s/7a7103cf06) - SPRING CLEAN, Violet Indigo Blue Etc

@@ -84,17 +84,7 @@
 
 *contact for PDF
 
-
-
-## Selected editorial Work
-[FIYAH LIT Palestine Solidarity Issue](https://www.fiyahlitmag.com/the-palestine-solidarity-issue/) as Guest Poetry Editor 
-
-[ORIGINALITYISDEAD](https://violetindigoblueetc.com/originalityisdead/) as Editor
-
-
-## Interviews
-[Leena Aboutaleb Speaks with Summer Farah about her Debut Chapbook](https://poetry.onl/read/summer-leena-2) at Poetry Online
-
+## Interviews 
 [The Craft of Turning Video Games into Literary Essays](https://electricliterature.com/critical-hits-writers-playing-video-games-book-anthology-interview-j-robert-lennon-and-carmen-maria-machado/) at Electric Lit 
 
 [The Same Water at Different Points: A Conversation with Hala Alyan and Zeina Hashem Beck](https://lareviewofbooks.org/article/the-same-water-at-different-points-a-conversation-with-hala-alyan-and-zeina-hashem-beck/) at Los Angeles Review of Books 
@@ -108,17 +98,13 @@
 [RAWIFest Interviews](https://soundcloud.com/radiusarabamericanwriters/sets/rawifest-2021) - with shereen & bes
 
 
-## Podcasts & misc.
+## Press & Podcasts 
 [About the Parasocial with Summer Farah](https://podcasts.apple.com/us/podcast/2-poet-talk-about-the-parasocial-featuring-summer-farah/id1749089614?i=1000660248583) - Poet Talk
 
 [Julie & Julia with Summer Farah](https://www.iheart.com/podcast/105-the-bechdel-cast-30089535/episode/julie-julia-with-summer-farah-158868453/) - The Bechdel Cast 
 
-[Jonas Brothers: The 3D Concert Experience](https://open.spotify.com/episode/53Z3M8GrjTwkavYXsrFaZX?si=WN44R1cYQQirXtBw0a8JHQ) – disney+ podcast+
+[Leena Aboutaleb Speaks with Summer Farah about her Debut Chapbook](https://poetry.onl/read/summer-leena-2) at Poetry Online
 
 ["we are summer farah"](https://www.ethnicallyambiguouspod.com/podcasts/we-are-summer-farah.html) – ethnically ambiguous
 
-["Palestine, Poetry & Pokemon with Summer!"](https://thequeerarabs.com/podcast/episode-49-palestine-poetry-pokemon-with-summer/) – the queer arabs
 
-["being a MENA poet with Summer Farah"](https://play.google.com/music/m/Dsql4dmvctacrj5ba5dc3ilikxq?t=E3_Being_a_MENA_Poet_-_with_Summer_Farah-Dirty_Pinko_Commie) – dirty pink commie
-
-["Recognizing Under-Known Arab Americans This Women's History Month"](https://www.arabamerica.com/recognizing-under-known-arab-americans-this-womens-history-month/) – arabamerica

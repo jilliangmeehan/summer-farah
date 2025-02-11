@@ -11,6 +11,7 @@
 ["we are summer farah"](https://www.ethnicallyambiguouspod.com/podcasts/we-are-summer-farah.html) – ethnically ambiguous
 
 **Reviews & Coverage**
+
 [From Msakhan to Martyrs: 8 Palestinian Books You Need to Read From 2024](https://www.amaliah.com/post/69988/palestinian-books-need-read-this-year) - Amaliah
 
 [Electric Lit's Best Poetry Collections of 2024](https://electricliterature.com/electric-lits-best-poetry-collections-of-2024/) - Electric Lit 

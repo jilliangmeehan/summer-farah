@@ -21,7 +21,7 @@
 
 [three poems](https://therumpus.net/2021/07/we-are-more-three-poems-by-summer-farah/) - The Rumpus  
 
-["THE MOON IS PRO-PALESTINE"](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) - voicemail poems winter 2021 issue
+[THE MOON IS PRO-PALESTINE](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) - voicemail poems winter 2021 issue
 
 ["it will be pink"](https://lithub.com/poets-respond-to-the-anniversary-of-nakba/) – LitHub, I FORGOT, LIKE YOU, TO DIE: 12 PALESTINIAN WRITERS RESPOND TO THE ONGOING NAKBA
 
@@ -58,7 +58,7 @@
 
 [In Review: Born in a Second Language by Akosua Zimba Afiriyie-Hwedie](https://vagabondcitylit.com/2021/07/19/in-review-born-in-a-second-language-by-akosua-zimba-afiriyie-hwedie/) at Vagabond City Lit
 
-[See other views at Vagabond City Lit Here.](https://vagabondcitylit.com/?s=summer+farah)
+[See other reviews at Vagabond City Lit Here.](https://vagabondcitylit.com/?s=summer+farah)
 
 [In Review: The Book of Disappearance by Ibtisam Azem](http://strangehorizons.com/non-fiction/reviews/the-book-of-disappearance-by-ibtisam-azem-translated-by-sinan-antoon/) at Strange Horizons
 

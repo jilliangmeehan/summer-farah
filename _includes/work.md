@@ -97,14 +97,3 @@
 
 [RAWIFest Interviews](https://soundcloud.com/radiusarabamericanwriters/sets/rawifest-2021) - with shereen & bes
 
-
-## Press & Podcasts 
-[About the Parasocial with Summer Farah](https://podcasts.apple.com/us/podcast/2-poet-talk-about-the-parasocial-featuring-summer-farah/id1749089614?i=1000660248583) - Poet Talk
-
-[Julie & Julia with Summer Farah](https://www.iheart.com/podcast/105-the-bechdel-cast-30089535/episode/julie-julia-with-summer-farah-158868453/) - The Bechdel Cast 
-
-[Leena Aboutaleb Speaks with Summer Farah about her Debut Chapbook](https://poetry.onl/read/summer-leena-2) at Poetry Online
-
-["we are summer farah"](https://www.ethnicallyambiguouspod.com/podcasts/we-are-summer-farah.html) – ethnically ambiguous
-
-

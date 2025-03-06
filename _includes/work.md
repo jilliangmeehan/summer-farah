@@ -84,7 +84,9 @@
 
 *contact for PDF
 
-## Interviews 
+## Interviews + Profiles
+[Interlink is a Palestinian American Publisher with a Purpose](https://www.publishersweekly.com/pw/by-topic/international/sharjah-book-fair/article/96157-a-palestinian-american-publisher-with-purpose.html) at Publisher's Weekly
+
 [The Craft of Turning Video Games into Literary Essays](https://electricliterature.com/critical-hits-writers-playing-video-games-book-anthology-interview-j-robert-lennon-and-carmen-maria-machado/) at Electric Lit 
 
 [The Same Water at Different Points: A Conversation with Hala Alyan and Zeina Hashem Beck](https://lareviewofbooks.org/article/the-same-water-at-different-points-a-conversation-with-hala-alyan-and-zeina-hashem-beck/) at Los Angeles Review of Books 

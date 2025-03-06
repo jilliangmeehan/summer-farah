@@ -1,0 +1,17 @@
+---
+title: Summer Farah
+permalink: "/press"
+layout: default
+---
+
+{% capture press %}
+{% include press.md %}
+{% endcapture %}
+
+<!-- Content -->
+
+<div class="container">
+  <p>{{ press | markdownify }}</p>
+</div>
+
+{% include nav.html %}

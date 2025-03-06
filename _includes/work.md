@@ -15,15 +15,7 @@
 
 [I TELL ETEL ADNAN ABOUT JULIE & JULIA](https://ko-fi.com/s/7a7103cf06) - SPRING CLEAN, Violet Indigo Blue Etc
 
-[two pooems](https://longconmag.com/issue-14/summer-farah/) - Long Con Magazine, Issue 14 
-
-[two poems](https://violetindigoblueetc.com/summerf/) - GARDEN PARTY, Violet Indigo Blue Etc
-
-[two poems](https://violetindigoblueetc.com/two-poems-summer-farah/) - Summer 2022, Violet Indigo Blue Etc
-
 [portrait of each moon that has seen link live](https://www.poetry.onl/read/sum-fa) - Poetry Online 
-
-[two poems](https://www.sumoumag.com/read/two-poems) - Sumou Issue 5 
 
 [two poems](https://bahrmagazine.com/two-poems-summer-farah/) - bahr issue 1
 
@@ -31,12 +23,12 @@
 
 ["THE MOON IS PRO-PALESTINE"](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) - voicemail poems winter 2021 issue
 
-“origin story” – Mizna 19.1, The Palestine Issue
-
 ["it will be pink"](https://lithub.com/poets-respond-to-the-anniversary-of-nakba/) – LitHub, I FORGOT, LIKE YOU, TO DIE: 12 PALESTINIAN WRITERS RESPOND TO THE ONGOING NAKBA
 
 ## Reviews + Essays
 [From Witness From Speech From Image: On Etel Adnan’s The Arab Apocalypse and Theresa Hak Kyung Cha’s Dictee](https://www.poetrynw.org/from-witness-from-speech-from-image/) at Poetry Northwest. Buy it in zine form, with all proceeds going to the [Gaza Poets Society](https://givebutter.com/NCBSOF), [here](https://open-books-a-poem-emporium.myshopify.com/products/farah-summer-from-witness-from-speech-from-image-the-ara-apocalypse-dictee-zine?_pos=4&_sid=fa08d7aad&_ss=r).
+
+[A Theory of Birds: Zaina Alsous’s Poetry Imagines a Future in Which There Are Palestinians](https://wordswithoutborders.org/book-reviews/a-theory-of-birds-zaina-alsous-poetry-takes-on-mythologies-in-palestine-summer-farah/) at Words Without Borders
 
 [Review of "I Will Not Fold These Maps" by Mona Kareem trans. Sara Elkamel](https://www.thecommononline.org/review-of-i-will-not-fold-these-maps/) at The Common
 
@@ -66,17 +58,9 @@
 
 [In Review: Born in a Second Language by Akosua Zimba Afiriyie-Hwedie](https://vagabondcitylit.com/2021/07/19/in-review-born-in-a-second-language-by-akosua-zimba-afiriyie-hwedie/) at Vagabond City Lit
 
-[In Review: sad horse music by Samantha Fain](https://vagabondcitylit.com/2021/06/21/in-review-sad-horse-music-by-samantha-fain/) at Vagabond City Lit 
+[See other views at Vagabond City Lit Here.](https://vagabondcitylit.com/?s=summer+farah)
 
 [In Review: The Book of Disappearance by Ibtisam Azem](http://strangehorizons.com/non-fiction/reviews/the-book-of-disappearance-by-ibtisam-azem-translated-by-sinan-antoon/) at Strange Horizons
-
-[In Review: BINT by Ghwina Jawhari](https://vagabondcitylit.com/2021/04/19/in-review-bint-by-ghina-jawhari/) at Vagabond City Lit
-
-[In Review: Alien Miss by Carlina Duan](https://vagabondcitylit.com/2021/03/15/in-review-alien-miss-by-carlina-duan/) at Vagabond City Lit
-
-[In Review: Cut Woman by Dena Igusti](https://vagabondcitylit.com/2020/12/14/in-review-cut-woman-by-dena-igusti/) at Vagabond City Lit 
-
-[In Review: Ghost Tracks by Sneha Subramanian Kanta](https://vagabondcitylit.com/2021/02/15/in-review-ghost-tracks-by-sneha-subramanian-kanta/) at Vagabond City Lit
 
 ["No one is named. They are assigned: A Review of Jessica Abughattas’s Strip"](https://medium.com/anomalyblog/no-one-is-named-they-are-assigned-a-review-of-jessica-abughattas-strip-855a6016e12b) at ANOMALY
 

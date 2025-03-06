@@ -25,7 +25,7 @@
 
 ["it will be pink"](https://lithub.com/poets-respond-to-the-anniversary-of-nakba/) – LitHub, I FORGOT, LIKE YOU, TO DIE: 12 PALESTINIAN WRITERS RESPOND TO THE ONGOING NAKBA
 
-## Reviews + Essays
+## Selected Reviews + Essays
 [From Witness From Speech From Image: On Etel Adnan’s The Arab Apocalypse and Theresa Hak Kyung Cha’s Dictee](https://www.poetrynw.org/from-witness-from-speech-from-image/) at Poetry Northwest. Buy it in zine form, with all proceeds going to the [Gaza Poets Society](https://buymeacoffee.com/gazapoets), [here](https://open-books-a-poem-emporium.myshopify.com/products/farah-summer-from-witness-from-speech-from-image-the-ara-apocalypse-dictee-zine?_pos=4&_sid=fa08d7aad&_ss=r).
 
 [A Theory of Birds: Zaina Alsous’s Poetry Imagines a Future in Which There Are Palestinians](https://wordswithoutborders.org/book-reviews/a-theory-of-birds-zaina-alsous-poetry-takes-on-mythologies-in-palestine-summer-farah/) at Words Without Borders
@@ -72,6 +72,8 @@
 
 ## Interviews + Profiles
 [Interlink is a Palestinian American Publisher with a Purpose](https://www.publishersweekly.com/pw/by-topic/international/sharjah-book-fair/article/96157-a-palestinian-american-publisher-with-purpose.html) at Publisher's Weekly
+
+[Palestinian Poets on the Role of Literature in Fighting Genocide](http://electricliterature.com/palestinian-poets-on-the-role-of-art-in-fighting-genocide-gaza-palestine/) at Electric Lit
 
 [The Craft of Turning Video Games into Literary Essays](https://electricliterature.com/critical-hits-writers-playing-video-games-book-anthology-interview-j-robert-lennon-and-carmen-maria-machado/) at Electric Lit 
 

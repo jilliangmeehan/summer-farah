@@ -1,4 +1,4 @@
-**Interviews & Podcasts**
+## Interviews & Podcasts
 
 [Summer Farah Finds Poetic Inspiration from “The Legend of Zelda”](https://electricliterature.com/summer-farah-finds-poetic-inspiration-from-the-legend-of-zelda/) - Electric Lit 
 
@@ -10,7 +10,7 @@
 
 ["we are summer farah"](https://www.ethnicallyambiguouspod.com/podcasts/we-are-summer-farah.html) – ethnically ambiguous
 
-**Reviews & Coverage**
+## Reviews & Select Coverage
 
 [From Msakhan to Martyrs: 8 Palestinian Books You Need to Read From 2024](https://www.amaliah.com/post/69988/palestinian-books-need-read-this-year) - Amaliah
 

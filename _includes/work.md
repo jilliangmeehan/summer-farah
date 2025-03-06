@@ -44,9 +44,9 @@
 
 ["A New Silent Grammar": On Customs by Solmaz Sharif"](https://www.clereviewofbooks.com/home/solmaz-sharif-customs-review) at Cleveland Review of Books
 
-["I Write An Attempt: On Mohammed El-Kurd's RIFQA](https://lareviewofbooks.org/article/i-write-an-attempt-on-mohammed-el-kurds-rifqa/)at LA Review of Books
+["I Write An Attempt: On Mohammed El-Kurd's RIFQA](https://lareviewofbooks.org/article/i-write-an-attempt-on-mohammed-el-kurds-rifqa/) at LA Review of Books
 
-[Books We Read by Arabs in 2021](https://summabis.medium.com/books-we-read-by-arabs-in-2021-bc9db1dc837)with Samia Saliba
+[Books We Read by Arabs in 2021](https://summabis.medium.com/books-we-read-by-arabs-in-2021-bc9db1dc837) with Samia Saliba
 
 [The Baby Reimagined: Poets Edition](https://summabis.medium.com/the-baby-re-imagined-poets-edition-81760f544b7f) with Samia Saliba 
 

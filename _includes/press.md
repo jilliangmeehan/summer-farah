@@ -11,6 +11,7 @@
 ["we are summer farah"](https://www.ethnicallyambiguouspod.com/podcasts/we-are-summer-farah.html) – ethnically ambiguous
 
 ## Reviews & Select Coverage
+[Review: Summer Farah's Zelda-Inspired Poetry Collection Gives Agency to NPCs and Gamers](https://www.zeldadungeon.net/review-summer-farahs-zelda-inspired-poetry-collection-gives-agency-to-npcs-and-gamers/) - Zelda Dungeon
 
 [From Msakhan to Martyrs: 8 Palestinian Books You Need to Read From 2024](https://www.amaliah.com/post/69988/palestinian-books-need-read-this-year) - Amaliah
 

@@ -71,6 +71,8 @@
 *contact for PDF
 
 ## Interviews + Profiles
+[Sarah Lyn Rogers Turns Ugly Feelings into Poetry](https://electricliterature.com/sarah-lyn-rogers-turns-ugly-feelings-into-poetry/) at Electric Lit
+
 [Interlink is a Palestinian American Publisher with a Purpose](https://www.publishersweekly.com/pw/by-topic/international/sharjah-book-fair/article/96157-a-palestinian-american-publisher-with-purpose.html) at Publisher's Weekly
 
 [Palestinian Poets on the Role of Literature in Fighting Genocide](http://electricliterature.com/palestinian-poets-on-the-role-of-art-in-fighting-genocide-gaza-palestine/) at Electric Lit

@@ -26,6 +26,8 @@
 ["it will be pink"](https://lithub.com/poets-respond-to-the-anniversary-of-nakba/) – LitHub, I FORGOT, LIKE YOU, TO DIE: 12 PALESTINIAN WRITERS RESPOND TO THE ONGOING NAKBA
 
 ## Selected Reviews + Essays
+[Review: Perfect Victims: And the Politics of Appeal by Mohammed El-Kurd](https://mizna.org/mizna-online/review-perfect-victims/) at Mizna 
+
 [From Witness From Speech From Image: On Etel Adnan’s The Arab Apocalypse and Theresa Hak Kyung Cha’s Dictee](https://www.poetrynw.org/from-witness-from-speech-from-image/) at Poetry Northwest. Buy it in zine form, with all proceeds going to the [Gaza Poets Society](https://buymeacoffee.com/gazapoets), [here](https://open-books-a-poem-emporium.myshopify.com/products/farah-summer-from-witness-from-speech-from-image-the-ara-apocalypse-dictee-zine?_pos=4&_sid=fa08d7aad&_ss=r).
 
 [A Theory of Birds: Zaina Alsous’s Poetry Imagines a Future in Which There Are Palestinians](https://wordswithoutborders.org/book-reviews/a-theory-of-birds-zaina-alsous-poetry-takes-on-mythologies-in-palestine-summer-farah/) at Words Without Borders
@@ -50,8 +52,6 @@
 
 [The Baby Reimagined: Poets Edition](https://summabis.medium.com/the-baby-re-imagined-poets-edition-81760f544b7f) with Samia Saliba 
 
-[Constellations Series: The Camera Doesn't Love Anyone](https://mosaictheater.org/blog/constellations-series-camera) at Mosaic Theater blog 
-
 [Poetry Potluck: Layali Lubnan for Aracelis Girmay](https://poetry.arizona.edu/blog/poetry-potluck-9-layali-lubnan-aracelis-girmay) at University of Arizona Poetry Center
 
 [In Review: VILLAINY by Andrea Abi-Karam](https://vagabondcitylit.com/2021/09/20/in-review-villainy-by-andrea-abi-karam/) at Vagabond City Lit
@@ -65,8 +65,6 @@
 ["No one is named. They are assigned: A Review of Jessica Abughattas’s Strip"](https://medium.com/anomalyblog/no-one-is-named-they-are-assigned-a-review-of-jessica-abughattas-strip-855a6016e12b) at ANOMALY
 
 "“ , .”: Space and Justice in the Poetry of Solmaz Sharif", [Muslim American Hyphenations: Cultural Production and Hybridity in the Twenty-First Century, Lexington Books](https://rowman.com/ISBN/9781793641298/Muslim-American-Hyphenations-Cultural-Production-and-Hybridity-in-the-Twenty-first-Century)* 
-
-"by words I mean food" [SNAX](https://snaxreport.com/) Issue One
 
 *contact for PDF
 

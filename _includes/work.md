@@ -69,6 +69,10 @@
 *contact for PDF
 
 ## Interviews + Profiles
+[Rehearsal for the Future: An Interview with Fargo Nissim Tbakhi](https://www.poetryproject.org/publications/newsletter/280-spring-2025/rehearsal-for-the-future-interview-fargo-nissim-tbakhi-with-summer-farah) at The Poetry Project
+
+[For Lena Khalaf Tuffaha, Joy and Grief Are Intertwined](https://www.publishersweekly.com/pw/by-topic/authors/profiles/article/97660-for-lena-khalaf-tuffaha-joy-and-grief-are-intertwined.html) at Publisher's Weekly
+
 [Sarah Lyn Rogers Turns Ugly Feelings into Poetry](https://electricliterature.com/sarah-lyn-rogers-turns-ugly-feelings-into-poetry/) at Electric Lit
 
 [Interlink is a Palestinian American Publisher with a Purpose](https://www.publishersweekly.com/pw/by-topic/international/sharjah-book-fair/article/96157-a-palestinian-american-publisher-with-purpose.html) at Publisher's Weekly

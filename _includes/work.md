@@ -69,6 +69,8 @@
 *contact for PDF
 
 ## Interviews + Profiles
+[“What We Lose is Synonymous with Death”: A Conversation with Farah Ghafoor](https://ex-puritan.ca/what-we-lose-is-synonymous-with-death-a-conversation-with-farah-ghafoor) at The Ex-Puritan
+
 [Rehearsal for the Future: An Interview with Fargo Nissim Tbakhi](https://www.poetryproject.org/publications/newsletter/280-spring-2025/rehearsal-for-the-future-interview-fargo-nissim-tbakhi-with-summer-farah) at The Poetry Project
 
 [For Lena Khalaf Tuffaha, Joy and Grief Are Intertwined](https://www.publishersweekly.com/pw/by-topic/authors/profiles/article/97660-for-lena-khalaf-tuffaha-joy-and-grief-are-intertwined.html) at Publisher's Weekly

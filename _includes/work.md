@@ -11,7 +11,7 @@
 
 [I TELL ETEL ADNAN ABOUT THE LEGEND OF ZELDA](https://kenyonreview.org/piece/i-tell-etel-adnan-about-the-legend-of-zelda/) - Kenyon Review
 
-[AFTER WE WATCH ROAD FOOD I CONSIDER PLACE](https://apogeejournal.org/2024/03/22/summerfarah/) - Apogee Journal 
+[AFTER WE WATCH ROAD FOOD I CONSIDER PLACE](https://www.apogeejournal.org/pieces/summerfarah) - Apogee Journal 
 
 [I TELL ETEL ADNAN ABOUT JULIE & JULIA](https://ko-fi.com/s/7a7103cf06) - SPRING CLEAN, Violet Indigo Blue Etc
 

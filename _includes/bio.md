@@ -1,6 +1,6 @@
 **‼️ PRE-ORDER _THE HUNGERING YEARS_ ‼️**
 
-**[HOST PUBLICATIONS WEBSITE](https://hostpublications.com/collections/new-arrivals/products/the-hungering-years-by-summer-farah)** | **[ASTERISM](https://asterismbooks.com/product/the-hungering-years-summer-farah-summer-farah)**
+**‼️[HOST PUBLICATIONS](https://hostpublications.com/collections/new-arrivals/products/the-hungering-years-by-summer-farah)** or **[ASTERISM](https://asterismbooks.com/product/the-hungering-years-summer-farah-summer-farah)‼️**
 
 Summer Farah is a Palestinian American writer, editor, and zine-maker from California. She is the author of [_I could die today and live again_](https://open-books-a-poem-emporium.myshopify.com/collections/workshops-4-gaza-bookstore/products/w4g-farah-summer-i-could-die-today-live-again) (Game Over Books, 2024), poems inspired by  _The Legend of Zelda_. Her debut full-length poetry collection _The Hungering Years_ is forthcoming from Host Publications in 2026. She sends out the occasional essay, mostly about _Supernatural_, at [eveningconversations](https://eveningconversations.substack.com/).
 

@@ -69,6 +69,12 @@
 *contact for PDF
 
 ## Interviews + Profiles
+[“The Unfamiliar as Poetic Landscape”: A Conversation with Ally Ang](https://www.poetrynw.org/interview-the-unfamiliar-as-poetic-landscape-a-conversation-with-ally-ang/) at Poetry Northwest
+
+[A Poetry Collection That Mirrors the Grotesqueness of Girlhood](https://electricliterature.com/a-poetry-collection-that-mirrors-the-grotesqueness-of-girlhood/) at Electric Lit
+
+["On Making Work into Play: Leila Chatti on _Wildness Before Something Sublime](https://adimagazine.com/articles/interview-leila-chatti/)at Adi Magazine_
+
 [“What We Lose is Synonymous with Death”: A Conversation with Farah Ghafoor](https://ex-puritan.ca/what-we-lose-is-synonymous-with-death-a-conversation-with-farah-ghafoor) at The Ex-Puritan
 
 [Rehearsal for the Future: An Interview with Fargo Nissim Tbakhi](https://www.poetryproject.org/publications/newsletter/280-spring-2025/rehearsal-for-the-future-interview-fargo-nissim-tbakhi-with-summer-farah) at The Poetry Project

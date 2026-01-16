@@ -93,9 +93,6 @@
 
 [SUMMER FARAH SPEAKS WITH LEENA ABOUTALEB ABOUT HER DEBUT CHAPBOOK](https://www.poetry.onl/read/summer-leena) at Poetry Online
 
-[A Conversation with Zein Sa'dedin](https://www.sumoumag.com/read/what-does-a-country-mean-a-conversation-with-zein-sadedin) at Sumou Mag
+[A Conversation with Zein Sa'dedin](https://sumoumag.org/read/what-does-a-country-mean-a-conversation-with-zein-sadedin) at Sumou Mag
 
-[A Conversation with Maya Salameh](https://www.sumoumag.com/read/i-really-enjoy-writing-as-testaments-to-places-a-conversation-with-maya-salameh) at Sumou Mag
-
-[RAWIFest Interviews](https://soundcloud.com/radiusarabamericanwriters/sets/rawifest-2021) - with shereen & bes
-
+[A Conversation with Maya Salameh](https://sumoumag.org/read/i-really-enjoy-writing-as-testaments-to-places-a-conversation-with-maya-salameh) at Sumou Mag

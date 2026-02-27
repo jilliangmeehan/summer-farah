@@ -10,6 +10,7 @@
 [Electric Lit's Best Poetry Collections of 2024](https://electricliterature.com/electric-lits-best-poetry-collections-of-2024/) - Electric Lit 
 
 ## Interviews & Podcasts
+[The Host Dispatch: In Conversation with Summer Farah](https://hostdispatch.podbean.com/e/in-conversation-with-summer-farah/) - Host Publications
 
 [WATCH! Summer Farah Makes Zines](https://writersandtheirhobbies.substack.com/p/watch-summer-farah-makes-zines) - Writers and their Cherished Hobbies
 

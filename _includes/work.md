@@ -5,8 +5,6 @@
 
 [IN ANOTHER LIFE LINK IS A POET](https://www.splitthisrock.org/poetry-database/poem/in-another-life-link-is-a-poet) - Split This Rock
 
-[A YEAR AFTER I LOVED HAIKYUU,](https://kenyonreview.org/piece/a-year-after-i-first-loved-haikyuu/) - Kenyon Review
-
 [I TELL ETEL ADNAN ABOUT MITSKI](https://kenyonreview.org/piece/i-tell-etel-adnan-about-mitski/) - Kenyon Review
 
 [I TELL ETEL ADNAN ABOUT THE LEGEND OF ZELDA](https://kenyonreview.org/piece/i-tell-etel-adnan-about-the-legend-of-zelda/) - Kenyon Review
@@ -14,12 +12,6 @@
 [AFTER WE WATCH ROAD FOOD I CONSIDER PLACE](https://www.apogeejournal.org/pieces/summerfarah) - Apogee Journal 
 
 [I TELL ETEL ADNAN ABOUT JULIE & JULIA](https://ko-fi.com/s/7a7103cf06) - SPRING CLEAN, Violet Indigo Blue Etc
-
-[portrait of each moon that has seen link live](https://www.poetry.onl/read/sum-fa) - Poetry Online 
-
-[two poems](https://bahrmagazine.com/two-poems-summer-farah/) - bahr issue 1
-
-[three poems](https://therumpus.net/2021/07/we-are-more-three-poems-by-summer-farah/) - The Rumpus  
 
 [THE MOON IS PRO-PALESTINE](https://voicemailpoems.org/2021/02/02/the-moon-is-pro-palestine/) - voicemail poems winter 2021 issue
 

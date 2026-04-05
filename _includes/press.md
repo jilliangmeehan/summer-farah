@@ -14,7 +14,7 @@
 ## Interviews & Podcasts
 [O, Repetition!](https://oword.deesoulpoetry.com/p/o-repetition) - O, Word? Podcast
 
-[My Longing is Dictated by Elsehwere])https://liminaltransitreview.com/interviews/my-longing-is-dictated-by-elsewhere-an-interview-with-summer-farah/) - Liminal Transit Review
+[My Longing is Dictated by Elsehwere](https://liminaltransitreview.com/interviews/my-longing-is-dictated-by-elsewhere-an-interview-with-summer-farah/) - Liminal Transit Review
 
 [The Host Dispatch: In Conversation with Summer Farah](https://hostdispatch.podbean.com/e/in-conversation-with-summer-farah/) - Host Publications
 

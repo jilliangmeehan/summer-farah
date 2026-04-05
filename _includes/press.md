@@ -1,4 +1,6 @@
 ## Reviews & Select Coverage
+[Appetite & Obsession in Summer Farah's _The Hungering Years](https://therumpus.net/2026/03/23/a-desire-a-desire-appetite-obsession-in-summer-farahs-the-hungering-years/)_ - The Rumpus 
+
 [On The Hungering Years by Summer Farah](https://www.poetryproject.org/publications/newsletter/282-fall-2025/sanna-wani-on-the-hungering-years-by-summer-farah?page=2) - The Poetry Project 
 
 [MORE ALIVE THAN DESIRE: A review of Summer Farah’s The Hungering Years](https://www.apogeejournal.org/pieces/more-alive-than-desire-a-review-of-summer-farahs-the-hungering-years) - Apogee Journal
@@ -10,6 +12,10 @@
 [Electric Lit's Best Poetry Collections of 2024](https://electricliterature.com/electric-lits-best-poetry-collections-of-2024/) - Electric Lit 
 
 ## Interviews & Podcasts
+[O, Repetition!](https://oword.deesoulpoetry.com/p/o-repetition) - O, Word? Podcast
+
+[My Longing is Dictated by Elsehwere])https://liminaltransitreview.com/interviews/my-longing-is-dictated-by-elsewhere-an-interview-with-summer-farah/) - Liminal Transit Review
+
 [The Host Dispatch: In Conversation with Summer Farah](https://hostdispatch.podbean.com/e/in-conversation-with-summer-farah/) - Host Publications
 
 [WATCH! Summer Farah Makes Zines](https://writersandtheirhobbies.substack.com/p/watch-summer-farah-makes-zines) - Writers and their Cherished Hobbies

@@ -1,4 +1,6 @@
 ## Reviews & Select Coverage
+[THE HUNGERING YEARS—An Excerpt](https://mizna.org/mizna-online/the-hungering-years-an-excerpt/) - Mizna Online 
+
 [Appetite & Obsession in Summer Farah's The Hungering Years](https://therumpus.net/2026/03/23/a-desire-a-desire-appetite-obsession-in-summer-farahs-the-hungering-years/)_ - The Rumpus 
 
 [On The Hungering Years by Summer Farah](https://www.poetryproject.org/publications/newsletter/282-fall-2025/sanna-wani-on-the-hungering-years-by-summer-farah?page=2) - The Poetry Project 

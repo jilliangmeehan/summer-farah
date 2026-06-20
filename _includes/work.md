@@ -32,15 +32,11 @@
 
 [See the rest of Poetry Double Features Here](https://www.palettepoetry.com/columns/poetry-double-features/#:~:text=In%20Poetry%20Double%20Features%2C%20poet,collections%20that%20complement%20each%20other.)
 
-[Mouth to Mouth v. The Book of Goose](https://www.tournamentofbooks.com/2023/mouth-to-mouth-v-the-book-of-goose)at Tournament of Books
-
 [A Year in Reading](https://themillions.com/2022/12/a-year-in-reading-summer-farah.html) at The Millions 
 
 ["A New Silent Grammar": On Customs by Solmaz Sharif"](https://www.clereviewofbooks.com/home/solmaz-sharif-customs-review) at Cleveland Review of Books
 
 ["I Write An Attempt: On Mohammed El-Kurd's RIFQA](https://lareviewofbooks.org/article/i-write-an-attempt-on-mohammed-el-kurds-rifqa/) at LA Review of Books
-
-[Books We Read by Arabs in 2021](https://summabis.medium.com/books-we-read-by-arabs-in-2021-bc9db1dc837) with Samia Saliba
 
 [The Baby Reimagined: Poets Edition](https://summabis.medium.com/the-baby-re-imagined-poets-edition-81760f544b7f) with Samia Saliba 
 
@@ -56,9 +52,6 @@
 
 ["No one is named. They are assigned: A Review of Jessica Abughattas’s Strip"](https://medium.com/anomalyblog/no-one-is-named-they-are-assigned-a-review-of-jessica-abughattas-strip-855a6016e12b) at ANOMALY
 
-"“ , .”: Space and Justice in the Poetry of Solmaz Sharif", [Muslim American Hyphenations: Cultural Production and Hybridity in the Twenty-First Century, Lexington Books](https://rowman.com/ISBN/9781793641298/Muslim-American-Hyphenations-Cultural-Production-and-Hybridity-in-the-Twenty-first-Century)* 
-
-*contact for PDF
 
 ## Interviews + Profiles
 [“The Unfamiliar as Poetic Landscape”: A Conversation with Ally Ang](https://www.poetrynw.org/interview-the-unfamiliar-as-poetic-landscape-a-conversation-with-ally-ang/) at Poetry Northwest

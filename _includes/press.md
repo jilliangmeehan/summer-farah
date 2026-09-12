@@ -1,4 +1,6 @@
 ## Reviews & Select Coverage
+[The Shape of Joy in the Shadow of Grief: On Summer Farah’s The Hungering Years](https://splitlipthemag.com/reviews/0626/ad-lauren-abunassar) - Split Lip Magazine 
+
 [THE HUNGERING YEARS—An Excerpt](https://mizna.org/mizna-online/the-hungering-years-an-excerpt/) - Mizna Online 
 
 [Appetite & Obsession in Summer Farah's The Hungering Years](https://therumpus.net/2026/03/23/a-desire-a-desire-appetite-obsession-in-summer-farahs-the-hungering-years/)_ - The Rumpus 
@@ -14,6 +16,12 @@
 [Electric Lit's Best Poetry Collections of 2024](https://electricliterature.com/electric-lits-best-poetry-collections-of-2024/) - Electric Lit 
 
 ## Interviews & Podcasts
+[Poetry as Conversation: An Interview with Summer Farah](https://www.acaciamag.com/web/poetry-as-conversation-an-interview-with-summer-farah) - Acacia Magazine
+
+[“A feeling that leads to action and work”: An interview with Summer Farah](https://prairieschooner.unl.edu/digital-schooner/summer-farah-interview/) - Prairie Schooner 
+
+[The Hungering Years: Summer Farah on Holding a Magnifying Glass to Everything](https://adimagazine.com/articles/the-hungering-years-farah/) - Adi Magazine 
+
 [O, Repetition!](https://oword.deesoulpoetry.com/p/o-repetition) - O, Word? Podcast
 
 [My Longing is Dictated by Elsehwere](https://liminaltransitreview.com/interviews/my-longing-is-dictated-by-elsewhere-an-interview-with-summer-farah/) - Liminal Transit Review
